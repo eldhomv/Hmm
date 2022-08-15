@@ -1,2 +1,2 @@
 # Copyright
-Prohibited the use of repo files and also downloading not allowed.Wallpaper is only for personal use only. 
+Any unauthorized reproduction, redistribution or re-upload is strictly prohibited.Wallpaper is only for personal use only. 
